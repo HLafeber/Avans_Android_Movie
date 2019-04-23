@@ -1,2 +1,0 @@
-# Avans Android bullshit
-
